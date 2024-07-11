@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects to learn more about coding
 - 📫 How to reach me @amandavillavicente on instagram
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I'm curently doing a graduation on Nutrition hihi
+- ⚡ Fun fact: I'm curently doing a Nutrition grad hihi
 
 <!---
 minimilk787/minimilk787 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
